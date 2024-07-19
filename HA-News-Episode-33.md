@@ -1,0 +1,19 @@
+## [HA News Episode 33](https://youtu.be/N1Ru_TKH8ZE?t=1202)
+- https://abc7.com/post/2024-nathans-hot-dog-eating-contest-miki-sudo/15028635/
+- https://abc7.com/post/127-degrees-heat-record-shattered-death-valley-high/15035929/
+- https://www.cnn.com/2024/07/03/science/killing-barred-owls-to-save-spotted-owls/index.html
+- https://ca.sports.yahoo.com/news/soundgarden-release-final-songs-chris-193921577.html?src=rss&guccounter=1
+- https://ew.com/ryan-reynolds-hugh-jackman-seoul-waterbomb-festival-2024-deadpool-and-wolverine-8674329
+- https://www.npr.org/2024/06/29/nx-s1-5022578/robot-smile-face-skin-uncanny-valley
+- https://insider-gaming.com/shadow-of-the-erdtrees-final-boss-was-defeated-with-a-saxophone/
+- https://www.vg247.com/elden-ring-streamer-one-handed-level-one-shadow-of-erdtree-run
+- https://www.ign.com/articles/hidetaka-miyazaki-on-elden-ring-difficulty-i-absolutely-suck-at-video-games
+- https://www.thegamer.com/mortal-kombat-1-tournament-winner-community-effort-orlando-ceo-gaming-loses-money-dyloch-breaks-lighting/
+- https://x.com/consolevariant/status/1808894091784245252
+- https://www.msn.com/en-us/entertainment/gaming/someone-sold-a-ps5-dev-kit-as-a-pizza-kit/ar-BB1psMV5
+- https://www.youtube.com/watch?v=rNr8OrNYfLI
+- https://x.com/zachbussey/status/1808168617516671035
+- https://www.nbcnews.com/science/science-news/boa-constrictor-births-14-baby-snakes-after-living-alone-years-rcna159299
+- https://www.mlb.com/news/shohei-ohtani-calls-bat-boy-who-saved-him-my-hero
+- https://x.com/ABC7/status/1809004407373152321
+- https://www.youtube.com/watch?v=pyz4A9gCG2s
